@@ -1,1 +1,0 @@
-# tototoyata.github.io
